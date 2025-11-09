@@ -1,2 +1,2 @@
 
-- 📫 How to reach me ig @japoneisbp
+- 📫 How to reach me ig @japoneisbpp
